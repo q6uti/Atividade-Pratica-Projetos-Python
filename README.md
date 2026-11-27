@@ -1,4 +1,4 @@
-# prof não terminei o pokemon :((
+# prof não terminei o pokemon!! :((
 
 <br>
 
